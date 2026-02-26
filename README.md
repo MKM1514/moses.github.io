@@ -1,4 +1,3 @@
-A collaborative guide by Dorine kamande
                          Jackton mboya
                          Eshton mbuthia
                          mary githuhi
